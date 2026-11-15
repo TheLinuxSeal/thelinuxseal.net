@@ -1,1 +1,1 @@
-# [sealworld.org](https://sealworld.org)
+# [thelinuxseal.net](https://thelinuxseal.net)
